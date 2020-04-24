@@ -1,0 +1,1 @@
+# KvadratSumm_2
